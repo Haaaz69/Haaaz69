@@ -1,7 +1,5 @@
 - 🐱‍🏍 Hey,
 - Lets evolve 🚀as a society
-- And be ϸushin Ϸ
-- Money doesnt matter along as we can make a impact while surviving ,Hit me up with NDA's and Ideas
 - Telegram -H_a_m_z_as
 - Web3
 
