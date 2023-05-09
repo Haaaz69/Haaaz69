@@ -1,7 +1,3 @@
-- 🐱‍🏍 Hey,
-- Lets evolve 🚀as a society
-- Telegram -H_a_m_z_as
-- Web3
 
 <!---
 Haaaz69/Haaaz69 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
